@@ -1,0 +1,1 @@
+# magazkonsole.github.io
